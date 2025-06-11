@@ -43,5 +43,5 @@ Nos reservamos el derecho de actualizar esta Política de Privacidad en cualquie
 Si tienes preguntas sobre esta política, puedes contactarnos en:
 
 **Accesa**  
-Correo electrónico: contacto@accesa.me  
+Correo electrónico: administracion@accesa.me  
 Sitio web: [https://www.accesa.me](https://www.accesa.me)
